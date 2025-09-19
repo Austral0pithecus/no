@@ -1,1 +1,1 @@
-https://static.wikia.nocookie.net/aceattorney/images/e/e3/Normal_apollo_talking_jacket.gif/revision/latest/scale-to-width-down/1000?cb=20220106222634
+![Normal_apollo_talking_jacket](https://github.com/user-attachments/assets/27e16c7e-51d9-4d53-8f0f-22df1547e05f)
