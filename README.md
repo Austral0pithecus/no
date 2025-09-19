@@ -1,1 +1,1 @@
-<img width="1152" height="768" alt="image" src="https://github.com/user-attachments/assets/76694547-8512-4b3b-843f-633ec8d01c0f" />
+https://static.wikia.nocookie.net/aceattorney/images/e/e3/Normal_apollo_talking_jacket.gif/revision/latest/scale-to-width-down/1000?cb=20220106222634
